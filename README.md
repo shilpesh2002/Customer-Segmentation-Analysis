@@ -86,8 +86,8 @@ customer-segmentation/
 ---
 
 ## 🔗 Connect with Me
-📧 Email: your.email@example.com  
-💼 [LinkedIn](https://linkedin.com/in/your-profile)
+📧 Email: dodake.shilpesh2002@gmail.com  
+💼 [LinkedIn](https://linkedin.com/in/shilpesh-dodake-104861326/)
 
 ---
 
